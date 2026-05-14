@@ -1,4 +1,4 @@
-# 
+# Enhance MathType for PC | MathType for Windows with top Plugin for MathType for PC | MathType for Windows - interactive-notebooks and signal-processing, the #1 plugin. Includes
 
 
 
